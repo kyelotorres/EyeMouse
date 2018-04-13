@@ -1,4 +1,4 @@
 # EyeMouse
 
 
-## Cameorn is sooo good at computers
+## Cameron is sooo good at computers
